@@ -1,0 +1,1 @@
+Collins, Nick. "Musical form and algorithmic composition." *Contemporary Music Review* 28.1 (2009): 103-114.
